@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 - 👯 I’m currently looking for experience at a stable job to learn and strenghten my skills 
 - 🤔 I’m looking for help with strengthening and improving my abilities while also increasing my knowledge
 - 💬 Ask me about anything and I will answer as best as my potential
-- 📫 How to reach me: 230837484@mycput.ac.za (Email only valid till the end of 2025) or fransejamielee40@gmail.com
+- 📫 How to reach me: fransejamielee77@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I enjoy films and love working with people 
 
