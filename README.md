@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on my diploma in Application Development, and currently doing my last year at CPUT
 - 🌱 I’m currently learning JAVA, SQL, Managing Projects and Internet of Things with Raspberry PI and Arduino
 - 👯 I’m currently looking for experience at a stable job to learn and strenghten my skills 
-- 🤔 I’m looking for help with strengthening and improving my abilities while also increasing my knowledge
+- 🤔 I’m looking for help with strengthning and improving my abilities while also increasing my knowledge
 - 💬 Ask me about anything and I will answer as best as my potential
 - 📫 How to reach me: fransejamielee77@gmail.com
 - 😄 Pronouns: she/her
